@@ -1,3 +1,3 @@
-# isaacokusami.github.io
+# isaacokusamilinkedin.github.io
 
-[Your Link Here](https://isaacokusami.github.io/linkedin.html)
+[Your Link Here](https://isaacokusamilinkedin.github.io/linkedin.html)
